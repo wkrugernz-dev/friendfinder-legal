@@ -51,4 +51,4 @@ We may update this policy from time to time. We will notify you of material chan
 
 10. Contact Us
 For privacy questions or data deletion requests:
-Email: wkrugernz@gmail.com
+Email: info@yourfriendfinder.com
